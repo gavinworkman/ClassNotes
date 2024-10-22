@@ -1,3 +1,1 @@
 # AP Gov Notes
-
-/page
